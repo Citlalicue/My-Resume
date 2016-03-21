@@ -16,3 +16,34 @@
  * Collaboration strategies for museums and communities of color     
  * Museum and library science
  * Research methodologies   
+
+####Selected Professional Experience
+
+**Human Resources Coordinator**, Yosemite Hospitality (March 2016 - Present)
+ * 
+ * 
+ * 
+ * 
+ * 
+
+**Assistant Supervisor, Night Housing**, Delaware North Co. (August 2015-March 2016)
+ * 
+ * 
+ * 
+
+**Supervisor, Cashier**, Vroman’s Bookstore (October 2014 – August 2015)
+ * 
+ * 
+
+**Assistant Curator of Archaeology**, Fowler Museum at UCLA (September 2012 – February 2012) 
+ * 
+ * 
+ * 
+
+**Instructor Trainer**, American Red Cross (January 2003 – September 2008)
+ * 
+ * 
+ * 
+ * 
+
+####Volunteer Service
