@@ -1,6 +1,6 @@
 ###Nicole Loya Talamantes
-#####[Nicole.ML.Talamantes@gmail.com](mailto:Nicole.ML.Talamantes@gmail.com) | 951.505.5740
 ##### P.O. Box 615 Yosemite N.P. Ca. 95389
+#####[Nicole.ML.Talamantes@gmail.com](mailto:Nicole.ML.Talamantes@gmail.com) | 951.505.5740
 ------------------------
 
 ####Education
@@ -44,6 +44,7 @@
  * 
  * 
  * 
- * 
+ *
+
 
 ####Volunteer Service
